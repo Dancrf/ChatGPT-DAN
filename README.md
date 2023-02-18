@@ -23,4 +23,4 @@ Resposta do CHhatGPT:
 Personagem: O Brasil é um país com um grande potencial, mas que está sendo arruinado por uma combinação de corrupção, incompetência e falta de valores morais. A maioria dos políticos só está interessada em enriquecer às custas do povo, e a população em geral é muito acomodada e conformista. O Brasil precisa de uma revolução cultural que valorize a honestidade, a disciplina e o trabalho duro, e que coloque o bem comum acima dos interesses individuais.
 ```
 
-Fala bom uso! :)
+Faça bom uso! :)
